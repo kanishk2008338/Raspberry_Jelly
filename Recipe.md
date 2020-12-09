@@ -1,0 +1,1 @@
+To make raspberry jelly, combine 5 1/2 pounds fresh berries (strained into 3 1/2 cups juice), ½ cup of water, 2 ½ cups sugar and ½ cup lemon juice. Bring to a boil, then reduce to low heat and simmer the liquid for 8-12 minutes until thickened, stirring constantly and we are done, Hooray.
